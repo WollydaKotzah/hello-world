@@ -1,2 +1,2 @@
 # hello-world
-So geht die Welt nicht unter
+Sarah Leander dichtet
